@@ -1,1 +1,2 @@
 # Corporate-Policy-Review-Banking-Customer-Protection-Policy
+Reviewed the importance of customer protection in the banking sector. Studied customer rights related to fair treatment, transparency, privacy, and security. Understood how banks handle customer complaints and provide compensation for eligible losses. Analysed the policy to understand how banks can improve customer trust and service quality.
